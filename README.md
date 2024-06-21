@@ -6,5 +6,5 @@ Meu nome é Gehowanna Soares
 
 
 
-![](![image](https://github.com/Gehoow/gehoow/assets/171803426/30cc9e69-79c2-432c-8d8d-ae4ed7044cc1)
+![](![image](https://github.com/Gehoow/gehoow/assets/171803426/b8482332-cfb4-4870-99a7-46863fa54125)
 )
